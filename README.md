@@ -6,7 +6,7 @@
 
 Currently looking for developers.
 
-Contact <xtl@xtlsoft.top> or Telegram [@xtlsoft](https://t.me/@xtlsoft).
+Contact <xtl@xtlsoft.top> or Telegram [@xtlsoft](https://t.me/xtlsoft).
 
 ## What's this
 
